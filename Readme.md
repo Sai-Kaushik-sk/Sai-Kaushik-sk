@@ -5,6 +5,8 @@
 
 I am a huge fan of Arsenal FC and my goal in life is to buy that football club!
 
+This is a link to my great grad story which was published on the university's website😎
+https://www.unt.edu/commencement/great-grads/fall-2024.html
 
 This is my linkedin profile, plase connect with me!
 https://www.linkedin.com/in/sai01/
