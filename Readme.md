@@ -1,4 +1,4 @@
-# Hey!👋
+# Hello there!👋
 I’m Sai, and I hold a Master’s degree in Business Analytics! My passion lies at the intersection of data, technology, and creativity, and I’m always excited to learn new things and take on challenging projects.
 
 🌱 What I’m Learning: I’m diving deep into Deep Reinforcement Learning and exploring its potential in solving complex problems.
