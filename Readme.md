@@ -1,9 +1,9 @@
 # Hello there!👋
-I’m Sai, and I hold a Master’s degree in Business Analytics! My passion lies at the intersection of data, technology, and creativity, and I’m always excited to learn new things and take on challenging projects.
+I am Sai, and I hold a Master’s degree in Business Analytics! My passion lies at the intersection of data, technology, and creativity, and I’m always excited to learn new things and take on challenging projects.
 
-🌱 What I’m Learning: I’m diving deep into Deep Reinforcement Learning and exploring its potential in solving complex problems.
+🌱 What I am Learning: I am diving deep into Deep Reinforcement Learning and exploring its potential in solving complex problems.
 
-👀 Interests: I’m a huge sports enthusiast and love staying active.
+👀 Interests: I am a huge sports enthusiast and love staying active.
 
 🎾 Fun Fact: I used to be a professional Tennis player, and I bring the same determination and discipline from the court to everything I do.
 
