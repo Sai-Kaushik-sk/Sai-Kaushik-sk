@@ -9,7 +9,7 @@ I’m Sai, and I hold a Master’s degree in Business Analytics! My passion lies
 
 🎮 Gamer at Heart: I love playing video games—recently, I conquered Elden Ring and now I’m competing in Apex Legends!
 
-⚽ I’m also a die-hard Arsenal FC fan, and my ultimate dream is to one day own the club!
+⚽ I am also a die-hard Arsenal FC fan, and my ultimate dream is to one day own the club!
 
 📖 The book I am currently reading is The Rise and Fall of the Third Reich: A History of Nazi Germany.
 
