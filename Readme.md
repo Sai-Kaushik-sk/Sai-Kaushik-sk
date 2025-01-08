@@ -10,9 +10,9 @@ I am Sai, and I hold a Master’s degree in Business Analytics! My passion lies 
 
 🎮 Gamer at Heart: I love playing video games—recently, I completed Elden Ring and now I am grinding it out in Apex Legends!
 
-⚽ I am also a die-hard Arsenal FC fan, and my ultimate dream is to one day own the club!
+⚽ I am also a die-hard Arsenal FC fan, and my ultimate dream is to own the club!
 
-📖 The book I am currently reading is The Rise and Fall of the Third Reich: A History of Nazi Germany.
+📖 The book I am currently reading is Discourses and Selected Writings by Epictetus
 
 This post features me modeling for a Tax Workshop! It was an exciting opportunity to combine creativity while contributing to promoting financial awareness!🧍‍♂️
 
