@@ -6,7 +6,7 @@ I am Sai, and I hold a Master’s degree in Business Analytics! My passion lies 
 
 👀 Interests: I am a huge sports enthusiast and love working out.
 
-🎾 Fun Fact: I used to be a professional Tennis player, and I bring the same determination and discipline from the court to everything I do.
+🎾 Fun Fact: I used to be a professional Tennis player, and I bring the same determination and discipline from the court to everything I do!
 
 🎮 Gamer at Heart: I love playing video games—recently, I completed Elden Ring and now I am grinding it out in Apex Legends!
 
